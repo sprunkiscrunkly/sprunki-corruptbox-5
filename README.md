@@ -78,5 +78,5 @@ Today, Sprunki Corruptbox 5 stands as a unique fusion of creativity and darkness
 
 Dive into a haunting musical experience! Explore corrupted characters, mysterious sound loops, and glitch effects in this dark reimagining of the classic.
 
-- [Play Sprunki Corruptbox 5 1st Version Now - It's Free!](https://sprunksters.com/sprunki-corruptbox-5/#play-now)
-- [Play Sprunki Corruptbox 5 2nd Version Now - It's Free!](https://sprunkiscrunkly.com/sprunki-corruptbox-5/#play-now)
+- [Play Sprunki Corruptbox 5 1st Version Now - It's Free!](https://sprunksters.com/sprunki-corruptbox-5/)
+- [Play Sprunki Corruptbox 5 2nd Version Now - It's Free!](https://sprunkiscrunkly.com/sprunki-corruptbox-5/)
